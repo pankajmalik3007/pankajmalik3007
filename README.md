@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working at *Triveni Global Software Services LLP.*
 
-- 📫 How to reach me *mailto:pankajmalik3007@gmail.com*
+- 📫 How to reach me *pankajmalik3007@gmail.com*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
